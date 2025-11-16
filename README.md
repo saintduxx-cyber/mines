@@ -1,2 +1,2 @@
 # by santostefano epta
-# за токеном - @cryptobrut
+# за токеном - @gkvypoqq
